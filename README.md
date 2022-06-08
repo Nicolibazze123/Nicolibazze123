@@ -1,6 +1,5 @@
-- 👋 Hi, I’m @Nicolibazze123
-- nicoli :)
+jhenifer nicolly
+14y
+br
+intereses: anime, manga, livros, desenho, musica etc
 <3
-
-Nicolibazze123/Nicolibazze123 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
